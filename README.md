@@ -1,4 +1,4 @@
-![Office Automation](http://wellsosaur.us/Zrt2/robots.jpg)
+![Office Automation](http://wellsosaur.us/ZrYd/robots.jpg)
 
 
 ## Wake / Sleep
